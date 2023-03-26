@@ -1,1 +1,0 @@
-# Amir-s-resolution-in-March-2023
